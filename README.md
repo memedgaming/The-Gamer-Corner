@@ -9,4 +9,5 @@ I will most likely update this sometimes i guess.
 Currently i only have cookie clicker
 
 Site
+
 memedgaming.github.io/The-Gamer-Corner/
