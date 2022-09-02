@@ -6,8 +6,6 @@ So i made this because i was bored in school.
 
 I will most likely update this sometimes i guess.
 
-Currently i only have cookie clicker
+[Website](https://memedgaming.github.io/The-Gamer-Corner/index/)
 
-Site
-
-memedgaming.github.io/The-Gamer-Corner/
+Last Updated:9/2/2022
